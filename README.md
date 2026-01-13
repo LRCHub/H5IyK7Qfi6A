@@ -1,0 +1,92 @@
+# 轟はじめ – Dunk
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Game on, hearts racing again
+Everyone声上げ 踏み鳴らすMotion
+Light on my feet
+口元緩むの your fault
+Tick-tack Tick-tack 全てGO
+Pickup Pickup 逃さない
+夢中で駆けるこの瞬間
+誰も追いつけない
+でも見えないあの子の正解
+いっそ博打でかますか Penetrate
+Oh...いやまだ踏み込めないライン
+窓を覗く午後
+Ding ding dong 鳴り響いて Alright
+(You’re the game I just gotta win)
+狙う 3ポイントシュート もう虜に
+届けたいよ すぐに
+奪っちゃう uh 胸の鼓動 u hu
+Heart 掴む Shoot!!
+1 2 3 で落ちる恋
+5 6 7 夢みたいに
+届けたい 君にDunk
+僕がそうAce
+Wake up, wake up, wake up
+Dum dunk
+Wake up, wake up, wake up
+Dum dunk
+Something sparked inside
+気づいたらもうDown up
+あー悩んでる間もなくMatch up
+君に近づく距離あと6.75m
+駆け引きなしで Run&gun
+脳が脈打つ第六感
+I’m madly in love with you
+映りたい君のeye
+窓を覗く午後
+燃える Heartbeat 滾らせて誓う
+(You’re the game I just gotta win)
+願う 3ポイントシュートを君に
+受け取ってよ すぐに
+うなずく uh アガる鼓動 u hu
+Heart 掴む Shoot!!
+1 2 3 で落ちる恋
+5 6 7 弾けそう
+もどかしい 想いにDunk
+僕はそう Ace?
+Wake up, wake up, wake up
+Dum dunk
+Wake up, wake up, wake up
+Dum dunk
+願う Dance with me
+Game set まで
+Wake up, wake up
+Heart 掴む Shoot!!
+Wake up, wake up, wake up
+Dum dunk
+Wake up, wake up, wake up
+Dum dunk
+叶えたい 想いをDunk
+もっと近くで Get Point!!
+Yeah 決めろPlaymaker
+Yeah 見ててくれ
+まだNever never breaking
+Game back on again!!
+Are you ready?
+3ポイントシュートを君に
+願う声と共に
+最後は uh ブザービートで Get you
+Heart 掴む Shoot!!
+1 2 3 で伝えよう
+5 6 7 夢じゃない
+届けたい 君にDunk
+僕がそう Ace
+Wake up, wake up, wake up
+Dum dunk
+Wake up, wake up, wake up
+Dum dunk
+行こう Dance with me
+Game set まで
+Wake up, wake up
+Heart 掴む Shoot!!
+Wake up, wake up, wake up
+Dum dunk
+Wake up, wake up, wake up
+Dum dunk
+届けたい 君にDunk
+もう離さない Get Point!!
+```
